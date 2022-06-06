@@ -11,7 +11,7 @@
 
 - 📫 Você me acha através do e-mail **thiagof.araujo@yahoo.com.br**
 
-- 📄 Conhecer minhas experiências profissionais em [https://www.linkedin.com/in/thiagoaraujo130491/](https://www.linkedin.com/in/thiagoaraujo130491/)
+- 📄 Conhecer minhas experiências profissionais em [https://www.linkedin.com/in/thiagoaraujo130491/](https://www.linkedin.com/in/thiagof-araujo/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
